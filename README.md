@@ -1,4 +1,4 @@
-# 🎮 Unity developer passionate about VR/AR 
+# 🎮 Unity developer
 
 
 🚀 Currently working on a fast-growing and financially successful VR product – [VIAVR](https://viavr.global/) 
