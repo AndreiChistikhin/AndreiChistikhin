@@ -10,4 +10,4 @@
 🔍 Always staying up to date with the latest industry trends and technical innovations
 
 
-📫 Reach me on [LinkedIn]([https://www.linkedin.com/in/andrew-chistikhin-5151a31a5/](https://www.linkedin.com/in/andrei-chistikhin/) 
+📫 Reach me on [LinkedIn](https://www.linkedin.com/in/andrei-chistikhin/) 
